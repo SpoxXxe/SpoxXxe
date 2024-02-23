@@ -1,1 +1,1 @@
-yeah just some scripts for friends and stuff uknow
+maybe ill actualyl be productive soon 
